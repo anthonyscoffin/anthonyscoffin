@@ -10,8 +10,7 @@ hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist t
 ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) 
 
 # CRITERIA.ᐟ ![coffin](https://mikejima.crd.co/assets/images/shadow/6beead2e.gif?v=e37e90e0)
-[★](https://www.youtube.com/watch?v=E2jFtRHjbPo) " *...the light in your eyes has been squandered 
-There's no angel in you in the end.* "
+[★](https://www.youtube.com/watch?v=E2jFtRHjbPo) " *...the light in your eyes has been squandered, there's no angel in you in the end.* "
 
 ![andrew glare](https://file.garden/ZNjY5-CbZ0o-GQoj/smokes_ccrop.png)
 
