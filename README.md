@@ -3,7 +3,7 @@
 
 ![andrew look](https://file.garden/ZNjY5-CbZ0o-GQoj/ra_butcher_1dcrop.png)
 
-hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist that uses any pronouns (***It***/**he**/she/any). i am terrible at introduction so lets just skip to the next section ![stars](https://64.media.tumblr.com/f0bf2155cd4c698c497cfe29fae7b24d/9ee3db4b81776661-cd/s75x75_c1/4bd4358425f8a18c65d1aeef4bcc780209fc4eed.gif)
+hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist that uses any pronouns (***It***/**he**/any). i am terrible at introduction so lets just skip to the next section ![stars](https://64.media.tumblr.com/f0bf2155cd4c698c497cfe29fae7b24d/9ee3db4b81776661-cd/s75x75_c1/4bd4358425f8a18c65d1aeef4bcc780209fc4eed.gif)
 
 ⋆ 🔗 [rentry](https://rentry.co/galacticlobotomy) ⭒ 🔗 [pony town carrd](https://ponytownslobotomy.carrd.co/) ⭒ 🔗 [guestbook](https://galacticlobotomy.123guestbook.com/) ⭒ 🔗 [strawpage](https://galacticlobotomy.straw.page/) ⭒ 🔗 [patreon](https://www.patreon.com/galacticlobotomy/about) ⭒ 🔗 [spacehey](https://spacehey.com/galacticlobotomy) ⭒ 🔗 [discord](https://discordapp.com/users/471151816688533535) ⋆
 
