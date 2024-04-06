@@ -61,6 +61,7 @@ hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist t
 - Ice Nine Kills
 - **I DONT KNOW HOW BUT THEY FOUND ME**
 - Pierce The Veil
+- **Sorority Noise**
 - **Crywank**
 - Nothing More
 - Set It Off
@@ -75,22 +76,25 @@ hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist t
 ![graves tv](https://file.garden/ZNjY5-CbZ0o-GQoj/tv_2acrop.png)
 
 ## **GENERAL.ᐟ** ![gen](https://supplies.ju.mp/assets/images/gallery05/a6e671c2_original.gif?v=6a50b904)
-- i play pony town daily (300+ days of playtime), you will often find me in random places/wandering or at docks... also sometimes under a tree at the market. *i (normally, not always) take the* ***months of May and November off***, *so expect me to be offline for 2 months each year total*.
-- im very friendly i think so dont be shy! just a little blunt or mysterious. friend request are always open (if my list isnt full), **i do not friend first so if you want me on your list**... ***add me***! and because of how active i am, if you are offline for weeks theres a chance youll be unfriended if we arent close!
+- i play pony town daily (400+ days of playtime), i have been playing since 2017 (daily since june of 2018 not counting breaks) and i will not tolerate shit anymore. im tired.
+- im very friendly so feel free to interact unless your a troll or just rude. i will snap back <3
 - i am often multitasking so theres a 50/50 chance that i am offtab but im still quite responsive i think!
-- extra fun fact, most of my skin names are either jokes, song names or lyrics :] if theyre not named seriously/normally that is. you can always ask about the names!
+- i use slurs i can reclaim and i make kms jokes, if this makes you uncomfy please tell me!
 
 ## **STATUS MEANINGS.ᐟ** ![status](https://cdn.discordapp.com/attachments/1135445836642385970/1140847663382794360/g12.gif)
 - Online ⭒ literally never enabled.
-- Looking for chat ⭒ almost always enabled, open to chat!
-- Looking for roleplay ⭒ as it reads! looking for a lab most likely :]
-- Away ⭒ also as it reads, normally pops up if im off tab too long.
-- Busy ⭒ please do not interact unless you are a friend, i am likely upset if this is enabled.
+- Looking for chat ⭒ open to chat, not enabled often anymore.
+- Looking for roleplay ⭒ as it reads, looking for a lab most likely...
+- Away ⭒ i have this on often, i like the little moon symbol <3
+- Busy ⭒ please do not interact unless you are a friend, or if i interact first.
 
 ## **BEFORE YOU INTERACT.ᐟ** ![warning](https://64.media.tumblr.com/fd3ebb8f4374f0ff470173bdf3720e21/e92e724d08501b36-d2/s75x75_c1/4c4bf1733ae1c5cdf39a7c8bc6614a42332a366f.gif)
 - i may not respond right away if i am offtab but i try my best too, im almost always multitasking.
+- i am pretty blunt, if you piss me off im not afraid to call you out. i will snap back if you overstep a boundary.
+- i have about 400+ players hidden in counting, i will not be afraid to hide you if you piss me off, at this point i hide freely; following my own dni and yours.
 
 ## **DO NOT INTERACT + DO'S AND DON'TS.ᐟ** ![angry](https://64.media.tumblr.com/48d355ab2558992c964aaa251de9c7fb/7d4346d1477298e1-3c/s75x75_c1/ab4a72a28910a0ccc108891bc1f0c24414ce36ca.gif)
+- please for the love of god if you have a problem with me or my partner and our skins or WHATEVER, ***HIDE US***. do not insult us, hide us. i am sick and fucking tired of your shit.
 - do **NOT** interact if you are the type to copy skins, do not copy my skins. *you may take inspo*, but ***DO NOT*** copy despite how "*simple*" my style is.
 - please do not bring up proship discourse with me or around me, *i will most likely* ***hide you for 24 hours***. it does not matter if you are on my list or not.
 - if you are the type to **send death threats** or **harass people viciously instead of muting and blocking** like a normal mature person, ***i want nothing to do with you***. do better.
