@@ -39,8 +39,8 @@ hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist t
 - **NEEDY STREAMER OVERLOAD**
 - **Your Turn To Die**
 - **OMORI** (fandom DNI unless i do first.)
-- **Dead Plate**
-- **No-good Noelle**
+- **Dead Plate**, **Cold Front**, **Elevator Hitch** and **Eloquent Countenance**
+- **No-good Noelle** and all of Nemlei's games (creator of ***TCoAaL*** btw!)
 - Deltarune/Undertale
 - Sally Face
 - Cookie Run
