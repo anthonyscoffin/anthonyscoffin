@@ -11,7 +11,7 @@ hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist t
 
 
 # PONY TOWN INFO.ᐟ ![pony town](https://file.garden/ZNjY5-CbZ0o-GQoj/favicon-16x16.png)
-[★](https://www.youtube.com/watch?v=MZcuRa8Z4fU) " *...Pathetic insect, drawn to flame.* "
+[★](https://www.youtube.com/watch?v=E2jFtRHjbPo) " *...the light in your eyes has been squandered, there's no angel in you in the end.* "
 ![graves tv](https://file.garden/ZNjY5-CbZ0o-GQoj/tv_2acrop.png)
 
 ## **GENERAL.ᐟ** ![gen](https://supplies.ju.mp/assets/images/gallery05/a6e671c2_original.gif?v=6a50b904)
@@ -47,68 +47,6 @@ hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist t
 - please please PLEASE do not flirt with me or my partner (even as a joke, i will likely snap at you), this has happened multiple times making me uncomfortable/unsure with kisses or cuddle unless its from trusted people or for compliments. please keep this in mind. so tl;dr **not too comfortable with c+h, and kiss as a compliment (unless friend, obviously)**. thank you!
 - obviously, do not "hump" (sit up and down) or make any sexual advances towards me, as i am taken. this again goes for both me and my partner (again, even as a joke, i likely will snap). this is usually done by trolls anyway so your lame ass is gonna be hidden.
 - if you see my pony crying or whatever, you dont have to ask if im alright or why/whats wrong, i will likely ignore. _(adding this here because ive had enough people rapidly boop or just. clog my whispers. **please dont clog my whispers with nonsense**)_
-
-![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) 
-
-# CRITERIA.ᐟ ![coffin](https://mikejima.crd.co/assets/images/shadow/6beead2e.gif?v=e37e90e0)
-[★](https://www.youtube.com/watch?v=E2jFtRHjbPo) " *...the light in your eyes has been squandered, there's no angel in you in the end.* "
-
-![andrew glare](https://file.garden/ZNjY5-CbZ0o-GQoj/smokes_ccrop.png)
-
-## **BEFORE YOU INTERACT.ᐟ** ![warning](https://vermillion.drr.ac/assets/images/gallery01/404ff162.gif?v=9b7c387b)
-- i get nervous pretty easily and may go silent randomly in the middle of conversation and for this i apologize :(
-- i may come off as rude or blunt unintentionally, i really dont mean any harm i promise
-- when im very attached to something, i do not take insults to it very lightly. it hurts.
-
-## **DO NOT INTERACT.ᐟ** ![mad](https://vermillion.drr.ac/assets/images/gallery01/2bc55952.gif?v=9b7c387b)
-- homo/transphobic, racist, anti-semitic, overall just bigoted... yk the drill.
-- pedo/zoo/map etc.
-- pro-harassment.
-- under 13, 16+ still preferred though.
-- support AI "art/writing" and think it's real art/writing.
-- crypto/NFT enthusiast.
-
-![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) 
-
-# FANDOM.ᐟ ![andy](https://file.garden/ZNjY5-CbZ0o-GQoj/drewhappy.png)
-[★](https://www.youtube.com/watch?v=WJxSNbAer9M) " *...One day the earth will open wide, and I’ll follow you inside, cause the only hell I know is without you.* "
-
-![andrew sicko](https://file.garden/ZNjY5-CbZ0o-GQoj/sever_acrop.png)
-## **INTERESTS.ᐟ** ![love](https://watermelon.crd.co/assets/images/gallery11/e8ef3728.gif?v=2a41aca3)
-- ***The Coffin of Andy and Leyley***
-- **Danganronpa** (all, mainly interested in ***[Danganronpa Zero](https://www.dropbox.com/s/f1yn9o1m04wql18/Danganronpa%20Zero.pdf?dl=0)*** and SDR2.)
-- **NEEDY STREAMER OVERLOAD**
-- **Your Turn To Die**
-- **OMORI** (fandom DNI unless i do first.)
-- **Dead Plate**, **Cold Front**, **Elevator Hitch** and **Eloquent Countenance**
-- **No-good Noelle** and all of Nemlei's games (creator of ***TCoAaL*** btw!)
-- Deltarune/Undertale
-- Sally Face
-- Cookie Run
-- The Mandela Catalogue
-- Detroit: Become Human
-- Heathers
-- Five Nights at Freddy's
-- My Little Pony
-- **[Pony Town](https://pony.town/)**... and more!
-
-## **MUSIC.ᐟ** ![music](https://64.media.tumblr.com/a34ac9ec02237427db659df186801ae5/198eca86126a8546-f9/s75x75_c1/b8d1f0bf5db2d2489328b78df91cc437172fa898.gif)
-- ***STARSET***
-- ***Downplay***
-- **Sick Puppies**
-- **The Used**
-- **Get Scared**
-- **Crown The Empire**
-- Ice Nine Kills
-- **I DONT KNOW HOW BUT THEY FOUND ME**
-- Pierce The Veil
-- **Sorority Noise**
-- **Crywank**
-- Nothing More
-- Set It Off
-- Muse
-- Breaking Benjamin
-- My Chemical Romance... and more!
 
 ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) 
 
