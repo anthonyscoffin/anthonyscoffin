@@ -16,7 +16,7 @@ hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist t
 
 ## **GENERAL.ᐟ** ![gen](https://supplies.ju.mp/assets/images/gallery05/a6e671c2_original.gif?v=6a50b904)
 - i play pony town daily (400+ days of playtime), i have been playing since 2017 (daily since june of 2018 not counting breaks) and i will not tolerate shit anymore. im tired.
-- im very friendly so feel free to interact unless your a troll or just rude. i will snap back <3
+- im very friendly so feel free to interact unless you are a troll or just rude. i will snap back <3
 - i am often multitasking so theres a 50/50 chance that i am offtab but im still quite responsive i think!
 - i use slurs i can reclaim and i make kms jokes, if this makes you uncomfy please tell me!
 
