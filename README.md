@@ -38,7 +38,7 @@ hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist t
 - do **NOT** interact if you are the type to copy skins, do not copy my skins. *you may take inspo*, but ***DO NOT*** copy despite how "*simple*" my style is.
 - please do not bring up proship discourse with me or around me, *i will most likely* ***hide you for 24 hours***. it does not matter if you are on my list or not.
 - if you are the type to **send death threats** or **harass people viciously instead of muting and blocking** like a normal mature person, ***i want nothing to do with you***. do better.
-- please do not cover me if i do not know you.
+- please do not cover me if i do not know you. i will hide you if i feel/can tell its malicious.
 - please do not compare my OC's to canonical characters from another media.
 
 ## **CONTINUED BOUNDARIES.ᐟ** ![mad](https://vermillion.drr.ac/assets/images/gallery01/2bc55952.gif?v=9b7c387b)
