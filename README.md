@@ -5,7 +5,7 @@
 
 hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist that uses any pronouns (***It***/**he**/any). i am terrible at introduction so lets just skip to the next section ![stars](https://64.media.tumblr.com/f0bf2155cd4c698c497cfe29fae7b24d/9ee3db4b81776661-cd/s75x75_c1/4bd4358425f8a18c65d1aeef4bcc780209fc4eed.gif)
 
-⋆ 🔗 [rentry](https://rentry.co/galacticlobotomy) ⭒ 🔗 [pony town carrd](https://ponytownslobotomy.carrd.co/) ⭒ 🔗 [guestbook](https://galacticlobotomy.123guestbook.com/) ⭒ 🔗 [strawpage](https://galacticlobotomy.straw.page/) ⭒ 🔗 [patreon](https://www.patreon.com/galacticlobotomy/about) ⭒ 🔗 [spacehey](https://spacehey.com/galacticlobotomy) ⭒ 🔗 [discord](https://discordapp.com/users/471151816688533535) ⋆
+⋆ 🔗 [rentry](https://rentry.co/anthonyscoffin) ⭒ 🔗 [pony town carrd](https://ponytownscoffin.carrd.co/) ⭒ 🔗 [guestbook](https://galacticlobotomy.123guestbook.com/) ⭒ 🔗 [strawpage](https://galacticlobotomy.straw.page/) ⭒ 🔗 [patreon](https://www.patreon.com/anthonyscoffin/about) ⭒ 🔗 [spacehey](https://spacehey.com/anthonyscoffin) ⭒ 🔗 [discord](https://discordapp.com/users/471151816688533535) ⋆
 
 ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) 
 
@@ -34,7 +34,7 @@ hi im **Ant**hony.ᐟ i am a 19 y/o nonbinary transmasc unlabeled queer artist t
 
 ## **DO NOT INTERACT + DO'S AND DON'TS.ᐟ** ![angry](https://64.media.tumblr.com/48d355ab2558992c964aaa251de9c7fb/7d4346d1477298e1-3c/s75x75_c1/ab4a72a28910a0ccc108891bc1f0c24414ce36ca.gif)
 - please for the love of god if you have a problem with me or my partner and our skins or WHATEVER, ***HIDE US***. do not insult us, hide us. i am sick and fucking tired of your shit.
-- fall under my [dni](https://rentry.co/dnislobotomy)
+- fall under my [dni](https://rentry.co/dniscoffin)
 - do **NOT** interact if you are the type to copy skins, do not copy my skins. *you may take inspo*, but ***DO NOT*** copy despite how "*simple*" my style is.
 - please do not bring up proship discourse with me or around me, *i will most likely* ***hide you for 24 hours***. it does not matter if you are on my list or not.
 - if you are the type to **send death threats** or **harass people viciously instead of muting and blocking** like a normal mature person, ***i want nothing to do with you***. do better.
