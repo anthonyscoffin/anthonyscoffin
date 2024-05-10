@@ -30,7 +30,7 @@ hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist t
 ## **BEFORE YOU INTERACT.ᐟ** ![warning](https://64.media.tumblr.com/fd3ebb8f4374f0ff470173bdf3720e21/e92e724d08501b36-d2/s75x75_c1/4c4bf1733ae1c5cdf39a7c8bc6614a42332a366f.gif)
 - i may not respond right away if i am offtab but i try my best too, im almost always multitasking.
 - i am pretty blunt, if you piss me off im not afraid to call you out. i will snap back if you overstep a boundary.
-- i have about 400+ players hidden in counting, i will not be afraid to hide you if you piss me off, at this point i hide freely; following my own dni and yours.
+- i have about 500+ players hidden in counting, i will not be afraid to hide you if you piss me off, at this point i hide freely; following my own dni and yours.
 
 ## **DO NOT INTERACT + DO'S AND DON'TS.ᐟ** ![angry](https://64.media.tumblr.com/48d355ab2558992c964aaa251de9c7fb/7d4346d1477298e1-3c/s75x75_c1/ab4a72a28910a0ccc108891bc1f0c24414ce36ca.gif)
 - please for the love of god if you have a problem with me or my partner and our skins or WHATEVER, ***HIDE US***. do not insult us, hide us. i am sick and fucking tired of your shit.
