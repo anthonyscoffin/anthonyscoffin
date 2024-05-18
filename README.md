@@ -33,10 +33,9 @@ hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist t
 - i have about 500+ players hidden in counting, i will not be afraid to hide you if you piss me off, at this point i hide freely; following my own dni and yours.
 
 ## **DO NOT INTERACT + DO'S AND DON'TS.ᐟ** ![angry](https://64.media.tumblr.com/48d355ab2558992c964aaa251de9c7fb/7d4346d1477298e1-3c/s75x75_c1/ab4a72a28910a0ccc108891bc1f0c24414ce36ca.gif)
-- please for the love of god if you have a problem with me or my partner and our skins or WHATEVER, ***HIDE US***. do not insult us, hide us. i am sick and fucking tired of your shit.
+- please for the love of god if you have a problem with me and or my skins or WHATEVER, ***HIDE ME***. do not insult me, hide me. i am sick and fucking tired of your shit.
 - fall under my [dni](https://rentry.co/dniscoffin)
 - do **NOT** interact if you are the type to copy skins, do not copy my skins. *you may take inspo*, but ***DO NOT*** copy despite how "*simple*" my style is.
-- please do not bring up proship discourse with me or around me, *i will most likely* ***hide you for 24 hours***. it does not matter if you are on my list or not.
 - if you are the type to **send death threats** or **harass people viciously instead of muting and blocking** like a normal mature person, ***i want nothing to do with you***. do better.
 - please do not cover me if i do not know you. i will hide you if i feel/can tell its malicious.
 - please do not compare my OC's to canonical characters from another media.
@@ -44,8 +43,6 @@ hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist t
 ## **CONTINUED BOUNDARIES.ᐟ** ![mad](https://vermillion.drr.ac/assets/images/gallery01/2bc55952.gif?v=9b7c387b)
 - i dont mind boops, but they are not a way to get my attention. if you want my attention, whisper me or speak, i usually dont respond to just "hi" though, be creative!
 - i love crowns (👑) or compliments! feel free to! though, do it in whisper in case i dont see it (if you can)
-- please please PLEASE do not flirt with me or my partner (even as a joke, i will likely snap at you), this has happened multiple times making me uncomfortable/unsure with kisses or cuddle unless its from trusted people or for compliments. please keep this in mind. so tl;dr **not too comfortable with c+h, and kiss as a compliment (unless friend, obviously)**. thank you!
-- obviously, do not "hump" (sit up and down) or make any sexual advances towards me, as i am taken. this again goes for both me and my partner (again, even as a joke, i likely will snap). this is usually done by trolls anyway so your lame ass is gonna be hidden.
 - if you see my pony crying or whatever, you dont have to ask if im alright or why/whats wrong, i will likely ignore. _(adding this here because ive had enough people rapidly boop or just. clog my whispers. **please dont clog my whispers with nonsense**)_
 
 ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) 
