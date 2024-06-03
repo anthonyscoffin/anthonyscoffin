@@ -12,7 +12,7 @@ hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist t
 
 # PONY TOWN INFO.ᐟ ![pony town](https://file.garden/ZNjY5-CbZ0o-GQoj/favicon-16x16.png)
 [★](https://www.youtube.com/watch?v=E2jFtRHjbPo) " *...the light in your eyes has been squandered, there's no angel in you in the end.* "
-![slash](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-2-9b4415de57.gif)
+![slash](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-2-a8fde84bdc.gif)
 
 ## **GENERAL.ᐟ** ![gen](https://supplies.ju.mp/assets/images/gallery05/a6e671c2_original.gif?v=6a50b904)
 - i play pony town daily (400+ days of playtime), i have been playing since 2017 (daily since june of 2018 not counting breaks) and i will not tolerate shit anymore. im tired.
