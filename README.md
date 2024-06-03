@@ -1,7 +1,7 @@
 # INTRO.ᐟ
 [★](https://www.youtube.com/watch?v=xJtBYAKBByk) " *...you told me, if you love me, let it die.* "
 
-![andrew look](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-7-d00769e76b.gif)
+![andrew despair](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-2-0f84da060c.gif)
 
 hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist that uses any pronouns (***It***/**he**/any). i am terrible at introduction so lets just skip to the next section ![stars](https://64.media.tumblr.com/f0bf2155cd4c698c497cfe29fae7b24d/9ee3db4b81776661-cd/s75x75_c1/4bd4358425f8a18c65d1aeef4bcc780209fc4eed.gif)
 
@@ -12,7 +12,7 @@ hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist t
 
 # PONY TOWN INFO.ᐟ ![pony town](https://file.garden/ZNjY5-CbZ0o-GQoj/favicon-16x16.png)
 [★](https://www.youtube.com/watch?v=E2jFtRHjbPo) " *...the light in your eyes has been squandered, there's no angel in you in the end.* "
-![graves](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-4-c12831ccfc.gif)
+![slash](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-2-9b4415de57.gif)
 
 ## **GENERAL.ᐟ** ![gen](https://supplies.ju.mp/assets/images/gallery05/a6e671c2_original.gif?v=6a50b904)
 - i play pony town daily (400+ days of playtime), i have been playing since 2017 (daily since june of 2018 not counting breaks) and i will not tolerate shit anymore. im tired.
