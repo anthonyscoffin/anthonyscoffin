@@ -5,7 +5,7 @@
 
 hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist that uses any pronouns (***It***/**he**/any). i am terrible at introduction so lets just skip to the next section ![stars](https://64.media.tumblr.com/f0bf2155cd4c698c497cfe29fae7b24d/9ee3db4b81776661-cd/s75x75_c1/4bd4358425f8a18c65d1aeef4bcc780209fc4eed.gif)
 
-⋆ 🔗 [rentry](https://rentry.co/anthonyscoffin) ⭒ 🔗 [pony town carrd](https://ponytownscoffin.carrd.co/) ⭒ 🔗 [guestbook](http://users.smartgb.com/g/g.php?a=s&i=g19-01405-a7) ⭒ 🔗 [strawpage](https://anthonyscoffin.straw.page/) ⭒ 🔗 [patreon](https://www.patreon.com/anthonyscoffin/about) ⭒ 🔗 [spacehey](https://spacehey.com/anthonyscoffin) ⭒ 🔗 [discord](https://discordid.netlify.app/?id=471151816688533535) ⋆
+⋆ 🔗 [rentry](https://rentry.co/anthonyscoffin) ⭒ 🔗 [guestbook](http://users.smartgb.com/g/g.php?a=s&i=g19-01405-a7) ⭒ 🔗 [strawpage](https://anthonyscoffin.straw.page/) ⭒ 🔗 [patreon](https://www.patreon.com/anthonyscoffin/about) ⭒ 🔗 [spacehey](https://spacehey.com/anthonyscoffin) ⭒ 🔗 [discord](https://discordid.netlify.app/?id=471151816688533535) ⋆
 
 ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) 
 
