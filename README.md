@@ -1,7 +1,7 @@
 # INTRO.ᐟ
 [★](https://www.youtube.com/watch?v=xJtBYAKBByk) " *...you told me, if you love me, let it die.* "
 
-![andrew despair](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-2-0f84da060c.gif)
+![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-4-267d809cb3.gif)
 
 hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist that uses any pronouns (***It***/**he**/any). i am terrible at introduction so lets just skip to the next section ![stars](https://64.media.tumblr.com/f0bf2155cd4c698c497cfe29fae7b24d/9ee3db4b81776661-cd/s75x75_c1/4bd4358425f8a18c65d1aeef4bcc780209fc4eed.gif)
 
@@ -12,7 +12,7 @@ hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist t
 
 # PONY TOWN INFO.ᐟ ![pony town](https://file.garden/ZNjY5-CbZ0o-GQoj/favicon-16x16.png)
 [★](https://www.youtube.com/watch?v=E2jFtRHjbPo) " *...the light in your eyes has been squandered, there's no angel in you in the end.* "
-![slash](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-2-a8fde84bdc.gif)
+![fandomimg2](https://file.garden/ZNjY5-CbZ0o-GQoj/KKIMIGASHINE%20-%201588945581845909504%20-%20GIF%202.gif)
 
 ## **GENERAL.ᐟ** ![gen](https://supplies.ju.mp/assets/images/gallery05/a6e671c2_original.gif?v=6a50b904)
 - i play pony town daily (400+ days of playtime), i have been playing since 2017 (daily since june of 2018 not counting breaks) and i will not tolerate shit anymore. im tired.
@@ -48,4 +48,4 @@ hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist t
 ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) 
 
 ## that's all! thank you for reading.ᐟ
-![graves spin](https://64.media.tumblr.com/c6771b0142f4a0a2271b9bf2a6a3aa3d/bcfbbc9bef96be85-c8/s400x600/0ddcb0b239578d84eb47bb48c46776e738d50cc1.gif)
+![fandomimg3](https://file.garden/ZNjY5-CbZ0o-GQoj/i-dont-know-whats-happening-but-kanna-and-sou.gif)
