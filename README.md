@@ -1,21 +1,27 @@
 # INTRO.ᐟ
 [★](https://www.youtube.com/watch?v=xJtBYAKBByk) " *...you told me, if you love me, let it die.* "
 
-![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-4-267d809cb3.gif)
+![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-4-267d809cb3masktest.gif)
 
-hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist that uses any pronouns (***It***/**he**/any). i am terrible at introduction so lets just skip to the next section ![stars](https://64.media.tumblr.com/f0bf2155cd4c698c497cfe29fae7b24d/9ee3db4b81776661-cd/s75x75_c1/4bd4358425f8a18c65d1aeef4bcc780209fc4eed.gif)
+hi im **Ant**hony.ᐟ **it**/he, 20 ⋆ im a queer disaster obsessed fandom and music, and an artist and an editor of sorts, i make art (traditional/digital, sometimes try animation) and i edit (sprites and video). anyways, i am terrible at introduction so lets just skip to the next section ![stars](https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif)
 
 ⋆ 🔗 [rentry](https://rentry.co/anthonyscoffin) ⭒ 🔗 [smart guestbook](http://users.smartgb.com/g/g.php?a=s&i=g19-01405-a7) ⭒ 🔗 [atabook](https://anthonyscoffin.atabook.org/) ⭒ 🔗 [strawpage](https://anthonyscoffin.straw.page/) ⭒ 🔗 [patreon](https://www.patreon.com/anthonyscoffin/about) ⭒ 🔗 [spacehey](https://spacehey.com/anthonyscoffin) ⭒ 🔗 [discord](https://discordid.netlify.app/?id=471151816688533535) ⋆
 
-![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) 
+![divider](https://file.garden/ZNjY5-CbZ0o-GQoj/dividerquestionmark.png)
 
+
+# ATTENTION! PT FRIENDS/PLAYERS
+## everything below the this is all the pt/interaction info, i dont plan to update/change it currently, so ignore the part where it says "daily" until i fully come back.
+i used to play daily until something happened on June 13th that i need to heal from. i come back for events and sometimes to just check in with my friends for now, maybe interact with fandom etc. usual stuff... although, someday ill probably be back fully! i just need a bit more time to heal. i dont know when ill be back fully, i do miss this game but its difficult. if you still want to contact me, please add me on discord: [@anthonyscoffin](https://discordid.netlify.app/?id=471151816688533535)... thank you for reading! see you around when i can.
+
+![divider](https://file.garden/ZNjY5-CbZ0o-GQoj/dividerquestionmark.png)
 
 # PONY TOWN INFO.ᐟ ![pony town](https://file.garden/ZNjY5-CbZ0o-GQoj/favicon-16x16.png)
 [★](https://www.youtube.com/watch?v=E2jFtRHjbPo) " *...the light in your eyes has been squandered, there's no angel in you in the end.* "
-![fandomimg2](https://file.garden/ZNjY5-CbZ0o-GQoj/KKIMIGASHINE%20-%201588945581845909504%20-%20GIF%202.gif)
+![fandomimg2](https://file.garden/ZNjY5-CbZ0o-GQoj/KKIMIGASHINE%20-%201588945581845909504%20-%20GIF%202frame.gif)
 
 ## **GENERAL.ᐟ** ![gen](https://supplies.ju.mp/assets/images/gallery05/a6e671c2_original.gif?v=6a50b904)
-- i play pony town daily (400+ days of playtime), i have been playing since 2017 (daily since june of 2018 not counting breaks) and i will not tolerate shit anymore. im tired.
+- i **USED** to play pony town daily (400+ days of playtime), i have been playing since 2017 (daily since june of 2018 not counting breaks) and i will not tolerate shit anymore. im tired.
 - im very friendly so feel free to interact unless you are a troll or just rude. i will snap back <3
 - i am often multitasking so theres a 50/50 chance that i am offtab but im still quite responsive i think!
 - i use slurs i can reclaim and i make kms jokes, if this makes you uncomfy please tell me!
@@ -45,7 +51,7 @@ hi im **Ant**hony.ᐟ i am a 20 y/o nonbinary transmasc unlabeled queer artist t
 - i love crowns (👑) or compliments! feel free to! though, do it in whisper in case i dont see it (if you can)
 - if you see my pony crying or whatever, you dont have to ask if im alright or why/whats wrong, i will likely ignore. _(adding this here because ive had enough people rapidly boop or just. clog my whispers. **please dont clog my whispers with nonsense**)_
 
-![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) ![divider](https://64.media.tumblr.com/e7bb4e2c3824f30591f794d80379488c/9c6f817b4c431ba1-40/s250x400/f1633f8fbca07a53279caab1242a7b89c90fb22b.gif) 
+![divider](https://file.garden/ZNjY5-CbZ0o-GQoj/dividerquestionmark.png)
 
 ## that's all! thank you for reading.ᐟ
 ![fandomimg3](https://file.garden/ZNjY5-CbZ0o-GQoj/i-dont-know-whats-happening-but-kanna-and-sou.gif)
