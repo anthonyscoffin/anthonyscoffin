@@ -1,9 +1,8 @@
 # INTRO.ᐟ
 [★](https://www.youtube.com/watch?v=xJtBYAKBByk) " *...you told me, if you love me, let it die.* "
 
-![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/ezgif-4-267d809cb3masktest.gif)
+![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/KKIMIGASHINE%20-%201464331738935558144mask.gif)
 
-(^ ignore the glitch i dont know why its being braindead there is nothing wrong with the file as it works fine on my rentry, i dont know why it just flickers/glitches like that)
 
 hi im **Ant**hony.ᐟ **it**/he, 20 ⋆ im a queer disaster obsessed fandom and music, and an artist and an editor of sorts, i make art (traditional/digital, sometimes try animation) and i edit (sprites and video). anyways, i am terrible at introduction so lets just skip to the next section ![stars](https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif)
 
