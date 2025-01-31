@@ -1,7 +1,7 @@
 # INTRO.ᐟ
 [★](https://www.youtube.com/watch?v=xJtBYAKBByk) " *...you told me, if you love me, let it die.* "
 
-![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/KKIMIGASHINE%20-%201464331738935558144mask.gif)
+![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/Ft9zkupaIAIWs7-mask.png)
 
 
 hi im **Ant**hony.ᐟ **it**/he, 20 ⋆ im a queer disaster obsessed fandom and music, and an artist and an editor of sorts, i make art (traditional/digital, sometimes try animation) and i edit (sprites and video). anyways, i am terrible at introduction so lets just skip to the next section ![stars](https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif)
@@ -21,7 +21,7 @@ i used to play daily until something happened on June 13th that i need to heal f
 
 # PONY TOWN INFO.ᐟ ![pony town](https://file.garden/ZNjY5-CbZ0o-GQoj/favicon-16x16.png)
 [★](https://www.youtube.com/watch?v=E2jFtRHjbPo) " *...the light in your eyes has been squandered, there's no angel in you in the end.* "
-![fandomimg2](https://file.garden/ZNjY5-CbZ0o-GQoj/KKIMIGASHINE%20-%201588945581845909504%20-%20GIF%202frame.gif)
+![fandomimg2](https://file.garden/ZNjY5-CbZ0o-GQoj/F1HwYTgacAAbkhSmask.png)
 
 ## **GENERAL.ᐟ** ![gen](https://supplies.ju.mp/assets/images/gallery05/a6e671c2_original.gif?v=6a50b904)
 - i **USED** to play pony town daily (400+ days of playtime), i have been playing since 2017 (daily since june of 2018 not counting breaks) and i will not tolerate shit anymore. im tired.
@@ -57,4 +57,4 @@ i used to play daily until something happened on June 13th that i need to heal f
 ![divider](https://file.garden/ZNjY5-CbZ0o-GQoj/dividerquestionmark.png)
 
 ## that's all! thank you for reading.ᐟ
-![fandomimg3](https://file.garden/ZNjY5-CbZ0o-GQoj/i-dont-know-whats-happening-but-kanna-and-sou.gif)
+![fandomimg3](https://file.garden/ZNjY5-CbZ0o-GQoj/!%2497_ranmaru.png)
