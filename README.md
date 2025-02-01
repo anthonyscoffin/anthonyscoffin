@@ -1,4 +1,4 @@
-# INTRO.ᐟ
+# INTRO.ᐟ ⋮
 [♫](https://www.youtube.com/watch?v=1EKeQr2TGpM) " *...I'm part of the sun, I married the moon, my brother the comet.* "
 
 ![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/Ft9zkupaIAIWs7-mask.png)
