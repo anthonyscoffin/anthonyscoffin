@@ -30,7 +30,7 @@ i used to play daily until something happened on June 13th that i need to heal f
 - i am often multitasking so theres a 50/50 chance that i am offtab but im still quite responsive i think!
 - i use slurs i can reclaim and i make kms jokes, if this makes you uncomfortable please tell me!
 
-- one big thing with me is i want to know when im wrong or out of line, so if i upset you or make you uncomfortable at all, ***PLEASE*** tell me i am ***BEGGING*** you, it is VERY much appreciated, i am open to criticism. it is not a bad or scary thing, and is often neccasary i feel. im making this clear because of past experiences (see: 2024, iykyk), i want to be a good person, i dont want to make anyone upset or ruin a life, ya'know? thank you for understanding...
+- one big thing with me is i want to know when im wrong or out of line, so if i upset you or make you uncomfortable at all, ***PLEASE*** tell me i am ***BEGGING*** you, it is VERY much appreciated, i am open to criticism. it is not a bad or scary thing, and is often necessary i feel. im making this clear because of past experiences (see: 2024, iykyk), i want to be a good person, i dont want to make anyone upset or ruin a life, ya'know? thank you for understanding...
 
 ## **STATUS MEANINGS.ᐟ** ![warning](https://vermillion.drr.ac/assets/images/gallery01/404ff162.gif?v=9b7c387b)
 - Online ⭒ literally never enabled.
