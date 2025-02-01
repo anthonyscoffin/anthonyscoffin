@@ -4,7 +4,7 @@
 ![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/Ft9zkupaIAIWs7-mask.png)
 
 
-hi im **Anth**ony.ᐟ **it**/he, 20 ⋆ im a queer disaster obsessed with fandom and music, and an artist/editor of sorts, i make art (traditional/digital, sometimes try animation) and i edit (sprites and video). anyways, i am terrible at introduction so lets just skip to the next section ![stars](https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif)
+hi, im **Anth**ony.ᐟ **it**/he, 20 ⋆ im a queer disaster obsessed with fandom and music, and an artist/editor of sorts, i make art (traditional/digital, sometimes try animation) and i edit (sprites and video). anyways, i am terrible at introduction so lets just skip to the next section ![stars](https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif)
 
 ⋆ 🔗 [rentry](https://rentry.co/anthonyscoffin) ⭒ 🔗 [smart guestbook](http://users.smartgb.com/g/g.php?a=s&i=g19-01405-a7) ⭒ 🔗 [atabook](https://anthonyscoffin.atabook.org/) ⭒ 🔗 [strawpage](https://anthonyscoffin.straw.page/) ⭒ 🔗 [patreon](https://www.patreon.com/anthonyscoffin/about) ⭒ 🔗 [last.fm](https://www.last.fm/user/anthonyscoffin) ⭒ 🔗 [discord](https://discordid.netlify.app/?id=471151816688533535) ⭒ 🔗 [spacehey](https://spacehey.com/anthonyscoffin) ⋆
 
