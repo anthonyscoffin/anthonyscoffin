@@ -8,7 +8,7 @@ hi, im **Anth**ony.ᐟ **it/its** or he/him, 20 ⋆ im a queer disaster obsessed
 
 ⋆ 🔗 [rentry](https://rentry.co/anthonyscoffin) ⭒ 🔗 [smart guestbook](http://users.smartgb.com/g/g.php?a=s&i=g19-01405-a7) ⭒ 🔗 [atabook](https://anthonyscoffin.atabook.org/) ⭒ 🔗 [strawpage](https://anthonyscoffin.straw.page/) ⭒ 🔗 [patreon](https://www.patreon.com/anthonyscoffin/about) ⭒ 🔗 [last.fm](https://www.last.fm/user/anthonyscoffin) ⭒ 🔗 [discord](https://discordid.netlify.app/?id=471151816688533535) ⭒ 🔗 [spacehey](https://spacehey.com/anthonyscoffin) ⋆
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316r4eyubvy7c33mb45uxrofcqry&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=00d2ad&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316r4eyubvy7c33mb45uxrofcqry&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=cad9ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![divider](https://file.garden/ZNjY5-CbZ0o-GQoj/dividerquestionmark.png)
 
