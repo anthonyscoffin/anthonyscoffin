@@ -12,13 +12,6 @@ hi, im **Anth**ony.ᐟ **it/its** or he/him, 20 ⋆ im a queer disaster obsessed
 
 ![divider](https://file.garden/ZNjY5-CbZ0o-GQoj/dividerquestionmark.png)
 
-
-# ATTENTION, PT FRIENDS/PLAYERS!
-## everything below the this is all the pt/interaction info, i dont plan to update/change it currently, so ignore the part where it says "daily" until i fully come back.
-i used to play daily until something happened on June 13th that i need to heal from. i come back for events and sometimes to just check in with my friends for now, maybe interact with fandom etc. usual stuff... although, someday ill probably be back fully! i just need a bit more time to heal. i dont know when ill be back fully, i do miss this game but its difficult. if you still want to contact me, please add me on discord: [@anthonyscoffin](https://discordid.netlify.app/?id=471151816688533535)... thank you for reading! see you around when i can.
-
-![divider](https://file.garden/ZNjY5-CbZ0o-GQoj/dividerquestionmark.png)
-
 # PONY TOWN INFO.ᐟ ![pony town](https://file.garden/ZNjY5-CbZ0o-GQoj/favicon-16x16.png)
 [♫](https://www.youtube.com/watch?v=_tLNXSuF9kg) " *...Good luck, Godspeed, God damn you all.* "
 ![fandomimg2](https://file.garden/ZNjY5-CbZ0o-GQoj/F1HwYTgacAAbkhSmask.png)
