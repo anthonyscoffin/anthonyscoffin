@@ -1,8 +1,9 @@
 # INTRO.ᐟ ⋮
 [♫](https://www.youtube.com/watch?v=1EKeQr2TGpM) " *...I'm part of the sun, I married the moon, my brother the comet.* "
-
 ![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/Ft9zkupaIAIWs7-mask.png)
+<sub>art credit: ![@Cottonboi_56309](https://twitter.com/Cottonboi_56309/status/1648163080596246528/) on Twitter/X</sub>
 
+![](https://komarev.com/ghpvc/?username=anthonyscoffin&color=8ca1e0)
 
 hi, im **Anth**ony.ᐟ **it/its** or he/him, 20 ⋆ im a queer disaster obsessed with fandom and music, and an artist/editor of sorts, i make art (traditional/digital, sometimes try animation) and i edit (sprites and video). anyways, i am terrible at introduction so lets just skip to the next section ![stars](https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif)
 
@@ -15,6 +16,7 @@ hi, im **Anth**ony.ᐟ **it/its** or he/him, 20 ⋆ im a queer disaster obsessed
 # PONY TOWN INFO.ᐟ ![pony town](https://file.garden/ZNjY5-CbZ0o-GQoj/favicon-16x16.png)
 [♫](https://www.youtube.com/watch?v=_tLNXSuF9kg) " *...Good luck, Godspeed, God damn you all.* "
 ![fandomimg2](https://file.garden/ZNjY5-CbZ0o-GQoj/F1HwYTgacAAbkhSmask.png)
+<sub>art credit: ![@Cottonboi_56309](https://twitter.com/Cottonboi_56309/status/1680388633206083585/) on Twitter/X</sub>
 
 ## **GENERAL.ᐟ** ![gen](https://supplies.ju.mp/assets/images/gallery05/a6e671c2_original.gif?v=6a50b904)
 - i **USED** to play pony town daily (400+ days of playtime), i have been playing since 2017 (daily since june of 2018 not counting breaks), ive gotten less frequent but i want to get back in again, maybe someday, but ive been pretty busy these days spending time with my boyfriend and friends outside of this game
@@ -39,8 +41,9 @@ hi, im **Anth**ony.ᐟ **it/its** or he/him, 20 ⋆ im a queer disaster obsessed
 - i will not be afraid to hide you if you annoy me, at this point i hide freely; following my own dni and yours (even the "*hidden*" parts of my dni).
 
 ## **DO NOT INTERACT + DO'S AND DON'TS.ᐟ** ![angry](https://64.media.tumblr.com/48d355ab2558992c964aaa251de9c7fb/7d4346d1477298e1-3c/s75x75_c1/ab4a72a28910a0ccc108891bc1f0c24414ce36ca.gif)
-- please for the love of god if you have a problem with me and or my skins or WHATEVER, ***HIDE ME***. do not insult me, hide me and move on... shouldnt have to be said/asked.
+- are pro-harrasment.
 - fall under my [dni](https://rentry.co/dniscoffin)
+- please for the love of god if you have a problem with me and or my skins or WHATEVER, ***HIDE ME***. do not insult me, hide me and move on... shouldnt have to be said/asked.
 - do **NOT** interact if you are the type to copy skins, do not copy my skins. *you may take inspo*, but ***DO NOT*** copy despite how "*simple*" my style is.
 - if you are the type to **send death threats** or **harass people viciously instead of muting and blocking** like a normal mature person, ***i want nothing to do with you***. do better.
 - please do not cover me if i do not know you. i will hide you if i feel/can tell its malicious (usually for 24 hours).
