@@ -41,7 +41,7 @@ hi, im **Anth**ony.ᐟ **it/its** or he/him, 20 ⋆ im a queer disaster obsessed
 - i will not be afraid to hide you if you annoy me, at this point i hide freely; following my own dni and yours (even the "*hidden*" parts of my dni).
 
 ## **DO NOT INTERACT + DO'S AND DON'TS.ᐟ** ![angry](https://64.media.tumblr.com/48d355ab2558992c964aaa251de9c7fb/7d4346d1477298e1-3c/s75x75_c1/ab4a72a28910a0ccc108891bc1f0c24414ce36ca.gif)
-- are pro-harrasment.
+- are pro-harassment.
 - fall under my [dni](https://rentry.co/dniscoffin)
 - please for the love of god if you have a problem with me and or my skins or WHATEVER, ***HIDE ME***. do not insult me, hide me and move on... shouldnt have to be said/asked.
 - do **NOT** interact if you are the type to copy skins, do not copy my skins. *you may take inspo*, but ***DO NOT*** copy despite how "*simple*" my style is.
