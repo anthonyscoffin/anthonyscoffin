@@ -3,7 +3,7 @@
 ![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/Ft9zkupaIAIWs7-mask.png)
 <sub>art credit: [@Cottonboi_56309](https://twitter.com/Cottonboi_56309/status/1648163080596246528/) on Twitter/X</sub>
 
-![](https://komarev.com/ghpvc/?username=anthonyscoffin&color=8ca1e0)
+![](https://komarev.com/ghpvc/?username=anthonyscoffin&color=8ca1e0&style=plastic&label=People+expired.+(Views))
 
 hi, im **Anth**ony.ᐟ **it/its** or he/him, 20 ⋆ im a queer disaster obsessed with fandom and music, and an artist/editor of sorts, i make art (traditional/digital, sometimes try animation) and i edit (sprites and video). anyways, i am terrible at introduction so lets just skip to the next section ![stars](https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif)
 
