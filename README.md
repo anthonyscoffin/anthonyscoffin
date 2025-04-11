@@ -9,7 +9,7 @@ hi, im **Anth**ony.ᐟ **it/its** or he/him, 20 ⋆ im a queer disaster obsessed
 
 ![flag1](https://file.garden/ZNjY5-CbZ0o-GQoj/transmasculine-7-stripes-20-px.png) ![flag2](https://file.garden/ZNjY5-CbZ0o-GQoj/non-binary-4-stripes-20-px.png) ![flag3](https://file.garden/ZNjY5-CbZ0o-GQoj/achillean20x20bcpostimagdiedilldoitMYSELF.png) ![flag4](https://file.garden/ZNjY5-CbZ0o-GQoj/biromantic-3-stripes-20-px.png) ![flag5](https://file.garden/ZNjY5-CbZ0o-GQoj/Unlabeled20x20bcpostimgdiedilldoitMYSELF.png) 
 
-⋆ 🔗 [rentry](https://rentry.co/anthonyscoffin) ⭒ 🔗 [atabook](https://anthonyscoffin.atabook.org/) ⭒ 🔗 [strawpage](https://anthonyscoffin.straw.page/) ⭒ 🔗 [smart guestbook](http://users.smartgb.com/g/g.php?a=s&i=g19-01405-a7) ⭒ 🔗 [patreon](https://www.patreon.com/anthonyscoffin/about) ⭒ 🔗 [last.fm](https://www.last.fm/user/anthonyscoffin) ⭒ 🔗 [discord](https://discordid.netlify.app/?id=471151816688533535) ⭒ 🔗 [spacehey](https://spacehey.com/anthonyscoffin) ⋆
+⋆ 🔗 [rentry](https://rentry.co/anthonyscoffin) ⭒ 🔗 [atabook](https://anthonyscoffin.atabook.org/) ⭒ 🔗 [strawpage](https://anthonyscoffin.straw.page/) ⭒ 🔗 [smartgb](http://users.smartgb.com/g/g.php?a=s&i=g19-01405-a7) ⭒ 🔗 [patreon](https://www.patreon.com/anthonyscoffin/about) ⭒ 🔗 [last.fm](https://www.last.fm/user/anthonyscoffin) ⭒ 🔗 [discord](https://discordid.netlify.app/?id=471151816688533535) ⭒ 🔗 [spacehey](https://spacehey.com/anthonyscoffin) ⋆
 
 [![last-fm-thing](https://lastfm-recently-played.vercel.app/api?user=anthonyscoffin&header_style=compact_stats_only&show_user=footer&count=3&width=300&loved=true&footer_style=compact&bg_color=5c6893)](https://www.last.fm/user/anthonyscoffin)
 
