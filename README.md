@@ -47,7 +47,7 @@ hi, im **Anth**ony.ᐟ **it/its** or he/him, 20 ⋆ im a queer disaster obsessed
 ## **BEFORE YOU INTERACT.ᐟ** ![warning](https://64.media.tumblr.com/fd3ebb8f4374f0ff470173bdf3720e21/e92e724d08501b36-d2/s75x75_c1/4c4bf1733ae1c5cdf39a7c8bc6614a42332a366f.gif)
 - as mentioned, im pretty shy so i might go quiet or get overwhelmed with new people, so be patient with me
   
-- i may not respond right away if i am offtab but i try my best too, im almost always multitasking
+- i may not respond right away if i am offtab but i try my best to, im almost always multitasking
   
 - i am pretty blunt, if you upset me i will not be afraid to call you out.
   
