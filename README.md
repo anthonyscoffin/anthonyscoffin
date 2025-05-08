@@ -1,6 +1,6 @@
 # INTRO.ᐟ ⋮
-[♫](https://www.youtube.com/watch?v=1EKeQr2TGpM) " *...I'm part of the sun, I married the moon, my brother the comet.* "
-![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/Ft9zkupaIAIWs7-mask.png)
+[♫](https://www.youtube.com/watch?v=uMA5Yie-iCI) " *...You don't want freedom, you want trick photography.* "
+![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/Ft9zkupaIAIWs7-maskhtkk.png)
 <sub>art credit: [@Cottonboi_56309](https://twitter.com/Cottonboi_56309/status/1648163080596246528/) on Twitter/X</sub>
 
 ![](https://komarev.com/ghpvc/?username=anthonyscoffin&color=8ca1e0&style=plastic&label=People+expired.+(Views))
@@ -16,7 +16,7 @@ hi, im **Anth**ony.ᐟ **it/its** or he/him, 21 ⋆ im a queer disaster obsessed
 ![divider](https://file.garden/ZNjY5-CbZ0o-GQoj/dividerquestionmark.png)
 
 # PONY TOWN INFO.ᐟ ![pony town](https://file.garden/ZNjY5-CbZ0o-GQoj/favicon-16x16.png)
-[♫](https://www.youtube.com/watch?v=_tLNXSuF9kg) " *...Good luck, Godspeed, God damn you all.* "
+[♫](https://www.youtube.com/watch?v=wg-3vOlGKrs) " *...And don't you say I never warned you, when I set the house on fire.* "
 ![fandomimg2](https://file.garden/ZNjY5-CbZ0o-GQoj/F1HwYTgacAAbkhSmask.png)
 <sub>art credit: [@Cottonboi_56309](https://twitter.com/Cottonboi_56309/status/1680388633206083585/) on Twitter/X</sub>
 
