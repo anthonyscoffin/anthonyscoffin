@@ -1,13 +1,13 @@
 # INTRO.ᐟ ⋮
 [♫](https://www.youtube.com/watch?v=uMA5Yie-iCI) " *...You don't want freedom, you want trick photography.* "
-![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/Ft9zkupaIAIWs7-maskhtkk.png)
+[![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/Ft9zkupaIAIWs7-maskhtkk.png)](https://twitter.com/Cottonboi_56309/status/1648163080596246528/)
 <sub>art credit: [@Cottonboi_56309](https://twitter.com/Cottonboi_56309/status/1648163080596246528/) on Twitter/X</sub>
 
 ![](https://komarev.com/ghpvc/?username=anthonyscoffin&color=8ca1e0&style=plastic&label=People+expired.+(Views))
 
 hi, im **Anth**ony.ᐟ **it/its** or he/him, 21 ⋆ im a queer disaster obsessed with fandom and music, and an artist/editor of sorts, i make art (traditional/digital, sometimes try animation) and i edit (sprites and video). anyways, i am terrible at introduction so lets just skip to the next section ![stars](https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif)
 
-![flag1](https://file.garden/ZNjY5-CbZ0o-GQoj/transmasculine-7-stripes-20-px.png) ![flag2](https://file.garden/ZNjY5-CbZ0o-GQoj/non-binary-4-stripes-20-px.png) ![flag3](https://file.garden/ZNjY5-CbZ0o-GQoj/achillean20x20bcpostimagdiedilldoitMYSELF.png) ![flag4](https://file.garden/ZNjY5-CbZ0o-GQoj/biromantic-3-stripes-20-px.png) ![flag5](https://file.garden/ZNjY5-CbZ0o-GQoj/Unlabeled20x20bcpostimgdiedilldoitMYSELF.png) 
+[![flag1](https://file.garden/ZNjY5-CbZ0o-GQoj/transmasculine-7-stripes-20-px.png)](https://lgbtqia.fandom.com/wiki/Transmasculine) [![flag2](https://file.garden/ZNjY5-CbZ0o-GQoj/non-binary-4-stripes-20-px.png)](https://lgbtqia.fandom.com/wiki/Non-binary) [![flag3](https://file.garden/ZNjY5-CbZ0o-GQoj/achillean20x20bcpostimagdiedilldoitMYSELF.png)](https://lgbtqia.fandom.com/wiki/Achillean) [![flag4](https://file.garden/ZNjY5-CbZ0o-GQoj/biromantic-3-stripes-20-px.png)](https://lgbtqia.fandom.com/wiki/Biromantic) [![flag5](https://file.garden/ZNjY5-CbZ0o-GQoj/Unlabeled20x20bcpostimgdiedilldoitMYSELF.png)](https://lgbtqia.fandom.com/wiki/Unlabeled) 
 
 ⋆ 🔗 [rentry](https://rentry.co/anthonyscoffin) ⭒ 🔗 [atabook](https://anthonyscoffin.atabook.org/) ⭒ 🔗 [strawpage](https://anthonyscoffin.straw.page/) ⭒ 🔗 [smartgb](http://users.smartgb.com/g/g.php?a=s&i=g19-01405-a7) ⭒ 🔗 [neospring](https://neospring.org/@anthonyscoffin) ⭒ 🔗 [patreon](https://www.patreon.com/anthonyscoffin/about) ⭒ 🔗 [last.fm](https://www.last.fm/user/anthonyscoffin) ⭒ 🔗 [discord](https://discordid.netlify.app/?id=471151816688533535) ⭒ 🔗 [spacehey](https://spacehey.com/anthonyscoffin) ⋆
 
@@ -19,7 +19,7 @@ hi, im **Anth**ony.ᐟ **it/its** or he/him, 21 ⋆ im a queer disaster obsessed
 
 # PONY TOWN INFO.ᐟ ![pony town](https://file.garden/ZNjY5-CbZ0o-GQoj/favicon-16x16.png)
 [♫](https://www.youtube.com/watch?v=wg-3vOlGKrs) " *...And don't you say I never warned you, when I set the house on fire.* "
-![fandomimg2](https://file.garden/ZNjY5-CbZ0o-GQoj/F1HwYTgacAAbkhSmask.png)
+[![fandomimg2](https://file.garden/ZNjY5-CbZ0o-GQoj/F1HwYTgacAAbkhSmask.png)](https://twitter.com/Cottonboi_56309/status/1680388633206083585/)
 <sub>art credit: [@Cottonboi_56309](https://twitter.com/Cottonboi_56309/status/1680388633206083585/) on Twitter/X</sub>
 
 ## **GENERAL.ᐟ** ![gen](https://supplies.ju.mp/assets/images/gallery05/a6e671c2_original.gif?v=6a50b904)
